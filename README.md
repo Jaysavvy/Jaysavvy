@@ -6,7 +6,7 @@ My name is Jason, I'm a passionate self-taught full-stack web developer. With ex
 
 My side job is a wannabe astronaut with a keen eye for exploring every modern framework known to man. I'm usually in space 🔭 but if you can't find me there look at my social media's. 
 
-💼 any freelance work? do reach, [email](mailto:cratercollision@gmail.com) :)
+💼 any freelance work? do reach, [email]() :)
 
 **NOW TO INFINITY AND BEYOND!!!🚀**
 
