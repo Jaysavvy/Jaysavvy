@@ -1,4 +1,4 @@
-### Hello to all my fellow earthlings 👋
+### Hello My Fellow Earthlings 👋
 
 ![Jay's profile image](https://i.lensdump.com/i/TSQsgT.png)
 
