@@ -8,7 +8,7 @@ My side job is a wannabe astronaut with a keen eye for exploring every modern fr
 
 💼 any freelance work? do reach, [email]() :)
 
-**NOW TO INFINITY AND BEYOND!!!🚀**
+**NOW I'm Off TO INFINITY AND BEYOND!!!🚀**
 
 ## Quick overview
 
