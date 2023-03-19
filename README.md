@@ -1,4 +1,4 @@
-### After decades of fruitless scanning the skies I wanted drop down and say "Hi" to all my fellow earthlings 👋
+### Hello to all my fellow earthlings 👋
 
 ![Jay's profile image](https://i.lensdump.com/i/TSQsgT.png)
 
