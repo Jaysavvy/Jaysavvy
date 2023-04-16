@@ -5,7 +5,7 @@
 ![Jay's profile image](https://i.lensdump.com/i/TSQsgT.png)
 
 
-My name is Jason, I'm a passionate self-taught full-stack web developer. With experience that spans all types of galaxies, and fluent in all types of languages. Some of my favorites are Javascript, CSS, and TypeScript just to name a few. My side job is a wannabe astronaut with a keen eye for exploring every modern framework known to man. I'm usually in space 🔭 but if you can't find me there look at my social media's.
+I'm a passionate self-taught full-stack web developer. With experience that spans all types of galaxies, and fluent in all types of languages. Some of my favorites are Javascript, CSS, and TypeScript just to name a few. My side job is a wannabe astronaut with a keen eye for exploring every modern framework known to man. I'm usually in space 🔭 but if you can't find me there look at my social media's.
 
 *   🌍  I'm based in United States
 *   🖥️  See my portfolio at [💼 here](http://www.linkedin.com/in/sehwatz/)
